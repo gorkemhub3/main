@@ -1,2 +1,2 @@
 # gorkemhub
-# Wait 25.04.2023
+# emre kök tahayı dövmüş haha😁💕🔥
